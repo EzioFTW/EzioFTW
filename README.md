@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything and everything that'll give me experience.
 - 📫 How to reach me:
 Telegram: @EzioFTW
-Discord: bhuvan30#3010
+Discord: Saitama#5306
 <!---
 EzioFTW/EzioFTW is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
